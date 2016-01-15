@@ -1,0 +1,2 @@
+# Mirajane-s-Skill
+Investigation
